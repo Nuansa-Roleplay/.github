@@ -1,12 +1,12 @@
-# 🌆 HUSTLE ROLEPLAY — OFFICIAL COMMUNITY
+# 🌆NUANSA ROLEPLAY
 
-Selamat datang di **Hustle Roleplay**, komunitas **GTA 5 Roleplay (FiveM)** yang berfokus pada **pengalaman bermain realistis**, **komunitas solid**, dan **sistem kota yang terus berkembang**.  
+Selamat datang di **NUANSA ROLEPLAY**, komunitas **GTA 5 Roleplay (FiveM)** yang berfokus pada **pengalaman bermain realistis**, **komunitas solid**, dan **sistem kota yang terus berkembang**.  
 
 Kami hadir untuk membangun dunia roleplay yang **berkualitas, imersif, dan penuh cerita** — tempat setiap pemain bisa menjadi siapa pun yang mereka inginkan.
 
 ## 🚀 Tentang Kami
 
-**Hustle Roleplay** adalah komunitas yang berdiri di atas nilai **attitude**, **komunikasi**, dan **profesionalitas**.  
+**NUANSA ROLEPLAY** adalah komunitas yang berdiri di atas nilai **attitude**, **komunikasi**, dan **profesionalitas**.  
 Kami tidak hanya sekadar bermain — kami membangun **sebuah kota hidup**, **komunitas aktif**, dan **tempat tumbuhnya kreativitas**.
 
 🎯 **Fokus Kami:**
@@ -38,6 +38,6 @@ Kami terbuka bagi developer, staff, dan warga yang ingin ikut berkontribusi dala
 
 ## 📢 Sosial & Komunitas
 
-- 💬 **Discord:** [Join Discord Hustle RP](https://discord.gg/DdPKnW93A5)
+- 💬 **Discord:** [Join Discord NUANSA ROLEPLAY](https://discord.gg/DdPKnW93A5)
 
 ### ✨ “Build the City, Grow the Community, and Hustle Together.”
